@@ -1,1 +1,1 @@
-Hi I am Manjesh, Full Stack Web Developer
+Hi I am Manjesh, Full Stack Developer
